@@ -4,4 +4,4 @@
 - Write to the discord, but no one sees me anyway, I can сhill..
 
 ### Discord: elitespesialist
-### Telegram: @DotaRapperr
+### Telegram: @zxqud
